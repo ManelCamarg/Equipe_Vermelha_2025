@@ -1,0 +1,1 @@
+# Equipe_Vermelha_2025
